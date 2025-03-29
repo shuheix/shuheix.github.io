@@ -1,1 +1,0 @@
-# shuheix.github.io
